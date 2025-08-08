@@ -1,17 +1,2 @@
 # TesteSenaii
-apenas testando
-
-
-bajbshda
-sbdhjasvdhqa
-ashdjvasjda
-dsdajskdb
-
-
-balabslndaçsd
-
-
-assdads
-a
-ydyud
-zfdsd
+Entrega da atividade ao professor Celso;
